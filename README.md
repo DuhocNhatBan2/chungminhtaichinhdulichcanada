@@ -9,7 +9,7 @@
 # 1\. Tại sao cần chứng minh tài chính?
 
 # Chính phủ Canada yêu cầu du khách quốc tế cung cấp thông tin tài chính nhằm đảm bảo họ có đủ khả năng chi trả cho toàn bộ chi phí chuyến đi và không có ý định ở lại bất hợp pháp. Việc chứng minh tài chính rõ ràng sẽ giúp bạn tăng khả năng đậu visa, tạo thiện cảm với nhân viên xét duyệt hồ sơ và thể hiện mục đích du lịch minh bạch.
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-du-lich-canada.html
 # 
 
 # 2\. Cần chứng minh bao nhiêu tiền?
